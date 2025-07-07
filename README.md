@@ -1,6 +1,7 @@
-![tumblr_0f4193f46941f073fff3fb8861bbd708_6c1779a0_2048](https://github.com/user-attachments/assets/a265b581-03da-4fde-86b4-e049ef46fb80)
+![image](https://github.com/user-attachments/assets/c2878ebd-aa38-4f4b-9a6f-1f51d454f2b7)
 
 
-"I'll see you again."
+![image](https://github.com/user-attachments/assets/b5345b1e-9432-4a06-a2dd-e22cd98d4d9d)
 
-uwu dont mine this lmfao
+
+![image](https://github.com/user-attachments/assets/573185db-bd5a-47e6-9e8d-fa9b3cbf1f05)
